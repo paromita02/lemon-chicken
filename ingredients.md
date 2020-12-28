@@ -1,0 +1,1 @@
+chicken cubes,ginger and garlic paste,red chili,salt,turmeric,lemon juice and zest,oil,onion,sugar,garam masala,soya sauce and chopped mint leaves.
